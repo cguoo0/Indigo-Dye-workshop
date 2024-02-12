@@ -52,3 +52,5 @@ Note: The solution may appear bluish due to the dye from the fabric. Please read
 ![IMG_8411](https://github.com/cguoo0/Indigo-Dye-workshop/assets/148395285/474d949b-ba3e-44c7-9cda-772aac0630b2)
 
 Step 7: Rinse in Cool Water. After rinsing, remove the bindings (rubber bands, woodblocks, twine, etc.) and enjoy the unique patterns you've created!
+
+![IMG_8412](https://github.com/cguoo0/Indigo-Dye-workshop/assets/148395285/dbae91c1-d12a-42be-898e-0d79afd091f0)
