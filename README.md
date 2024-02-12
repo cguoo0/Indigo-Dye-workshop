@@ -45,9 +45,9 @@ Step 5: Rinse After Achieving Desired Color
 
 Once you are satisfied with the color, remove the fabric from the bucket. Do not unbind the fabric yet. Gently wash the tote or fabric in the sink in running water.
 
-Step 6: Use the Color Fixer Solution
+Step 6: Use the Dye Fixative Solution
 
-Soak the fabric in the color fixer solution (a transparent solution) for 10 minutes.
+Soak the fabric in the fixative solution (a transparent solution) for 10 minutes.
 Note: The solution may appear bluish due to the dye from the fabric. Please read the labels on the bucket for further instructions.
 ![IMG_8411](https://github.com/cguoo0/Indigo-Dye-workshop/assets/148395285/474d949b-ba3e-44c7-9cda-772aac0630b2)
 
