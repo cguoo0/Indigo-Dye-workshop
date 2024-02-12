@@ -17,6 +17,8 @@ Circular wrap:
 ![IMG_8390](https://github.com/cguoo0/Indigo-Dye-workshop/assets/148395285/06cd6a41-7650-4b9b-a9b8-fcfe0772278a)
 Random folding and tying:
 ![IMG_8397](https://github.com/cguoo0/Indigo-Dye-workshop/assets/148395285/688334f0-eefa-4780-9a8a-320f87a9e2ae)
+Rectangle folding:
+![IMG_8436](https://github.com/cguoo0/Indigo-Dye-workshop/assets/148395285/055575eb-0559-4125-824f-a56276ae0849)
 
 For more resources, the following links might be helpful:
 
